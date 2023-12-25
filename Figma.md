@@ -1,0 +1,1 @@
+https://www.figma.com/file/dj8vmZ9KaOzfdnUWpWPZRt/graduation_exam?type=design&node-id=0%3A1&mode=design&t=3bT11jtXSI79Fg3r-1
